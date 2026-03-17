@@ -2,7 +2,7 @@
 
 ## Haftungsausschluss
 
-Alles, was ich Dir erzähle ist Fantasie.
+Alles was ich Dir erzähle ist Fantasie.
 
 Solltest Du dennoch Resonanz verspüren, kannst Du mich gern per E-Mail erreichen:
 
